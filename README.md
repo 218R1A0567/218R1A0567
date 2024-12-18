@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Data Science and Machine Learning
 - 🌱 I’m currently learning ... CMR Engineering College
 - 💞️ I’m looking to collaborate on ... 
-- 📫 How to reach me ... Instagram - akshithraj52
+- 📫 How to reach me ... Instagram - akshithraj53
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ...  Honey never spoils. Archaeologists have found pots of honey in ancient Egyptian tombs that are over 3,000 years old and still perfectly edible!
 
